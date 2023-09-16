@@ -5,6 +5,10 @@
 
 ##### Orthodox Christianity is the face of ancient Christianity to the modern world and embraces the second largest body of Christians in the world. In this first-of-its-kind study Bible, the Bible is presented with commentary from the ancient Christian perspective that speaks to those Christians who seek a deeper experience of the roots of their faith.
 
+# Download links: 
+- [The Orthodox Study Bible - Scribd]
+- [The Orthodox Study Bible - Archive] 
+
 #### Features Include: 
 * **Old Testament newly translated from the Greek text of the Septuagint, including the Deuterocanon**
 * **New Testament from the New King James Version**
@@ -15,10 +19,6 @@
 * **Full color Icons**
 * **Full color Maps**
 * **9.5 point type size**
-
-#### Download links: 
-- [The Orthodox Study Bible - Scribd]
-- [The Orthodox Study Bible - Archive] 
 
 #### Product details:
  * **Publisher** ‏ : ‎ Thomas Nelson (June 17, 2008)
